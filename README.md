@@ -5,3 +5,4 @@
 [2001 - Uma Odisseia no Espaço - Filme Completo Dublado](https://www.tokyvideo.com/br/video/2001-uma-odisseia-no-espaco-filme-completo-dublado)  
 [Cosmos - Carl Sagan](https://www.youtube.com/playlist?list=PLWTsw1mh-VO-MONi88PiY6KstvIxw0Hcj)  
 [BBC - Universos Paralelos](https://vimeo.com/9480085)  
+[A Sociedade da Neve - Documentário Completo Dublado, 2007](https://youtu.be/oREubcwAw6o?si=gyCzmqeZgLP_lenB)
